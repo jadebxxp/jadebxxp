@@ -1,4 +1,4 @@
-jade biancchi.
+jade biancchi
 
 curitiba, paraná
 
